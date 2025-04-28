@@ -1,5 +1,5 @@
 # 💫 About Me:
-I am Gnana Keshav<br>aka More To Know<br><br>Aspering coder and enthusiast
+I am Gnana Keshav<br>aka More To Know<br><br>Aspiring coder and enthusiast
 
 
 ## 🌐 Socials:
